@@ -1,1 +1,2 @@
-# Cool synergies in Mewgenics
+# Cool synergies in Mewgenics :pouting_cat:
+## Hunter Synergies
